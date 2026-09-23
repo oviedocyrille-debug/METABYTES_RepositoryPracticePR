@@ -3,3 +3,5 @@
 Practice for PULL REQUEST 
 
 Member: Oviedo is HERE!
+
+Member: Fajardo is HERE!
