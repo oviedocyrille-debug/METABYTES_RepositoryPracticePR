@@ -8,4 +8,4 @@ Member: Fajardo is HERE!
 
 Member: Manongdo is HERE!
 
-Member: Eljhon is HERE!
+Member: Kim is HERE!
